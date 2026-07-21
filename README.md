@@ -1,5 +1,5 @@
 ![poopoopeepee](https://i.postimg.cc/mrNrPZt6/Untitled234-20251004213849.png)
-<p align="center"> ᡣ𐭩 •｡ꪆৎ ˚⋅Doctor. ᡣ𐭩 •｡ꪆৎ ˚⋅</p>
+<p align="center"> ᡣ𐭩 •｡ꪆৎ ˚⋅cheeky. ᡣ𐭩 •｡ꪆৎ ˚⋅</p>
 
 <p align="center">⋆˚꩜.ᐟ  she/he/they.⋆ ˚꩜.ᐟ </p>
 
